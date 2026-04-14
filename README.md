@@ -1,5 +1,15 @@
 # BDG Win Register & Login 2026 | Official Guide India & Bangladesh
+<div align="center">
 
+# 🏆 BDG Win Register & Login 2026
+
+### ✅ Use Invite Code: `2227217738348`
+
+[![✅ CLICK HERE TO REGISTER - BDG WIN 2026](https://img.shields.io/badge/✅%20CLICK%20HERE%20TO%20REGISTER-%20BDG%20WIN%202026-FFD700?style=for-the-badge&logoColor=black)](https://bdg2027.com//#/register?invitationCode=2227217738348)
+
+> 🎁 **Register with Invite Code `2227217738348` to get Sign-Up Bonus!**
+
+</div>
 [![BDG Win](https://img.shields.io/badge/BDG%20Win-Official%20Guide-gold?style=for-the-badge)](https://github.com)
 [![Platform](https://img.shields.io/badge/Platform-India%20%7C%20Bangladesh-blue?style=for-the-badge)](https://github.com)
 [![Year](https://img.shields.io/badge/Year-2026-green?style=for-the-badge)](https://github.com)
