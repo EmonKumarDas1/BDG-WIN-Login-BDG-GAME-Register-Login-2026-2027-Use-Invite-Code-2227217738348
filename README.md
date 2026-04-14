@@ -7,7 +7,7 @@
 
 > **BDG Win** is one of the most popular online color prediction gaming platforms in India and Bangladesh. This is the complete official guide for **BDG Win Register**, **BDG Win Login**, invite codes, bonuses, and withdrawals in 2026.
 
-BDG WIN LOGIN => [![BDG Win](https://bdg2027.com//#/register?invitationCode=2227217738348)]
+BDG WIN LOGIN => [![BDG Win](https://bdg2027.com//#/register?invitationCode=2227217738348)](https://github.com)
 ---
 
 ## 🎯 What is BDG Win?
