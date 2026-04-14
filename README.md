@@ -15,13 +15,13 @@
 
 ## 🚀 REGISTER NOW — Get Instant Sign-Up Bonus!
 
-<a href="[https://bdg2027.com//#/register?invitationCode=2227217738348](https://bdgwinapp.online)">
+<a href="https://bdgwinapp.online">
   <img src="https://img.shields.io/badge/🎮%20REGISTER%20ON%20BDG%20WIN%20NOW-%20Tap%20Here%20%E2%86%92-FFD700?style=for-the-badge&labelColor=FF6B00&logoColor=white" height="50"/>
 </a>
 
 &nbsp;&nbsp;
 
-<a href="[https://bdg2027.com//#/register?invitationCode=2227217738348](https://bdgwinapp.online)">
+<a href="https://bdgwinapp.online">
   <img src="https://img.shields.io/badge/🎁%20INVITE%20CODE-2227217738348-white?style=for-the-badge&labelColor=28A745" height="50"/>
 </a>
 
