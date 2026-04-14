@@ -1,6 +1,7 @@
 <div align="center">
 
-<img src="https://capsule-render.vercel.app/api?type=waving&color=FFD700,FF6B00&height=200&section=header&text=BDG%20Win%202026&fontSize=60&fontColor=ffffff&fontAlignY=35&desc=Official%20Register%20%26%20Login%20Guide%20%7C%20India%20%26%20Bangladesh&descAlignY=55&descSize=18" width="100%"/>
+<img width="242" height="243" alt="image" src="https://github.com/user-attachments/assets/925dc29c-91b0-4c4b-bc7f-9205f57ac894" />
+
 
 # 🏆 BDG Win Register & Login 2026
 ### Complete Official Guide for India 🇮🇳 & Bangladesh 🇧🇩
