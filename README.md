@@ -5,7 +5,13 @@
 
 # 🏆 BDG Win Register & Login 2026
 ### Complete Official Guide for India 🇮🇳 & Bangladesh 🇧🇩
+<div align="center">
 
+<a href="https://t.me/bdg_win_game_india">
+  <img src="https://img.shields.io/badge/💬%20JOIN%20OUR%20TELEGRAM-BDG%20Win%20India-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" height="55"/>
+</a>
+
+</div>
 [![Visitors](https://visitor-badge.laobi.icu/badge?page_id=bdg-win-register-login-2026)](https://github.com)
 [![Updated](https://img.shields.io/badge/Updated-2026-brightgreen?style=flat-square)](https://github.com)
 [![Platform](https://img.shields.io/badge/Platform-India%20%7C%20Bangladesh-blue?style=flat-square)](https://github.com)
