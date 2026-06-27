@@ -16,7 +16,7 @@
 ## 🚀 REGISTER NOW — Get Instant Sign-Up Bonus!
 
 <a href="https://bdgwinapp.online">
-  <img src="https://img.shields.io/badge/🎮%20REGISTER%20ON%20BDG%20WIN%20NOW-%20Tap%20Here%20%E2%86%92-FFD700?style=for-the-badge&labelColor=FF6B00&logoColor=white" height="50"/>
+  <img src="https://img.shields.io/badge/🎮%20REGISTER%20ON%20BDG%20WIN%20NOW-%20Tap%20Here%20%E2%86%92-FFD700?style=for-the-badge&labelColor=FF6B00&logoColor=white" height="100"/>
 </a>
 
 &nbsp;&nbsp;
