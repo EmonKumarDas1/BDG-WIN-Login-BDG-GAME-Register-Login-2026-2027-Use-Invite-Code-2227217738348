@@ -2,6 +2,13 @@
 
 <img width="242" height="243" alt="image" src="https://github.com/user-attachments/assets/925dc29c-91b0-4c4b-bc7f-9205f57ac894" />
 
+<div align="center">
+
+<a href="https://t.me/bdg_win_game_india">
+  <img src="https://img.shields.io/badge/💬%20JOIN%20OUR%20TELEGRAM-BDG%20Win%20India-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" height="55"/>
+</a>
+
+</div>
 
 # 🏆 BDG Win Register & Login 2026
 ### Complete Official Guide for India 🇮🇳 & Bangladesh 🇧🇩
@@ -12,13 +19,7 @@
 [![Games](https://img.shields.io/badge/Games-WinGo%20%7C%20K3%20%7C%205D%20%7C%20Aviator-FF6B00?style=flat-square)](https://github.com)
 
 ---
-<div align="center">
 
-<a href="https://t.me/bdg_win_game_india">
-  <img src="https://img.shields.io/badge/💬%20JOIN%20OUR%20TELEGRAM-BDG%20Win%20India-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white" height="55"/>
-</a>
-
-</div>
 ## 🚀 REGISTER NOW — Get Instant Sign-Up Bonus!
 
 <a href="https://bdgwinapp.online">
