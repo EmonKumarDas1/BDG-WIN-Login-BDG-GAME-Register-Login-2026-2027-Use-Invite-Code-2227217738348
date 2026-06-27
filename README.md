@@ -5,6 +5,13 @@
 
 # 🏆 BDG Win Register & Login 2026
 ### Complete Official Guide for India 🇮🇳 & Bangladesh 🇧🇩
+
+[![Visitors](https://visitor-badge.laobi.icu/badge?page_id=bdg-win-register-login-2026)](https://github.com)
+[![Updated](https://img.shields.io/badge/Updated-2026-brightgreen?style=flat-square)](https://github.com)
+[![Platform](https://img.shields.io/badge/Platform-India%20%7C%20Bangladesh-blue?style=flat-square)](https://github.com)
+[![Games](https://img.shields.io/badge/Games-WinGo%20%7C%20K3%20%7C%205D%20%7C%20Aviator-FF6B00?style=flat-square)](https://github.com)
+
+---
 <div align="center">
 
 <a href="https://t.me/bdg_win_game_india">
@@ -12,13 +19,6 @@
 </a>
 
 </div>
-[![Visitors](https://visitor-badge.laobi.icu/badge?page_id=bdg-win-register-login-2026)](https://github.com)
-[![Updated](https://img.shields.io/badge/Updated-2026-brightgreen?style=flat-square)](https://github.com)
-[![Platform](https://img.shields.io/badge/Platform-India%20%7C%20Bangladesh-blue?style=flat-square)](https://github.com)
-[![Games](https://img.shields.io/badge/Games-WinGo%20%7C%20K3%20%7C%205D%20%7C%20Aviator-FF6B00?style=flat-square)](https://github.com)
-
----
-
 ## 🚀 REGISTER NOW — Get Instant Sign-Up Bonus!
 
 <a href="https://bdgwinapp.online">
